@@ -1,1 +1,0 @@
-# DMATHIVA_homework_3
